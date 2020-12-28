@@ -8,4 +8,5 @@ by [![image](https://user-images.githubusercontent.com/37987346/101912317-962066
 
 
 
-gift HNS for lbs. of coffee here hs1q9jh0ldjn563nsfme64wt4x3r0wj5ghkx6dd2v5
+- gift HNS for lbs. of coffee here hs1q9jh0ldjn563nsfme64wt4x3r0wj5ghkx6dd2v5
+- see [Coffee Sippers/](https://official.coffeesippers.hns.to/)
