@@ -1,4 +1,4 @@
-## Coffee Master/ | a true Handshake top level domain
+## Coffee Master/ | a Handshake blockchain top level domain
 | [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](https://innerinetcompany.webflow.icontacto) | [IINC](http://dlink.innerinetcompany.hns.to/) |
 
 by [![image](https://user-images.githubusercontent.com/37987346/101912317-96206680-3b8f-11eb-910e-d9d7e5015035.png)](https://shapereality.innerinetcompany.hns.to/)
