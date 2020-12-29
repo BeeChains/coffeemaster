@@ -1,2 +1,2 @@
 # coffeemaster
-Coffee Master , a Handshake top level domain
+Coffee Master , a Handshake blockchain top level domain
